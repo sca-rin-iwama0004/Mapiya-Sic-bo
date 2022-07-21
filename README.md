@@ -1,1 +1,1 @@
-# Mapiya-Sic-bo
+# Mapiya-Cho-han
